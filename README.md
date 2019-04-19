@@ -1,3 +1,0 @@
-# pembelajaranawal
-
-w newbie mass
